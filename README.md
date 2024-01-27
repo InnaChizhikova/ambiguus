@@ -1,3 +1,6 @@
+
+[CV ChizhikovaInna.pdf](https://github.com/InnaChizhikova/ambiguus/files/14071102/CV.ChizhikovaInna.pdf)
+
 ![1](https://github.com/InnaChizhikova/ambiguus/assets/56799903/ea6f4a15-a710-4715-bbe5-d93968a6b7ea)
 ![2](https://github.com/InnaChizhikova/ambiguus/assets/56799903/f5401318-9f12-47b8-82e9-cc6cf1d5bd4b)
 ![3](https://github.com/InnaChizhikova/ambiguus/assets/56799903/056c3e71-a207-4ca5-875b-2e8344fda5dc)
